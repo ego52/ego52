@@ -1,3 +1,2 @@
 - 👋 Hi, I’m ego
 - 👀 I’m interested in cyber security
-- 💻 I'm streaming in https://kick.com/ego52
